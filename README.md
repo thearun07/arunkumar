@@ -1,1 +1,1 @@
-Jai silver jublie
+Jai silver jublie (VTU Belagavi)
